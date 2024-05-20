@@ -12,6 +12,7 @@ The series depicts the crisis and rekindling of love between **Hong Hae-in**, a 
   
 #### Favorite line : 
 > “One day, when only one of us is left, the other one can come meet them. Then it won’t be scary at all. Because we’ll be together.” – *Baek Hyun Woo and Hong Hae In*
+
 > “The sunset helps me forget how awful of a day I had. It just makes me want to go home.” - *Baek Hyunwoo*
 
 ##### Favorite OSTs:
